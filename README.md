@@ -30,10 +30,9 @@ Sekreterler için de her şeyi düzenleyip halledebilecekleri şöyle sistem tas
 
 ![Ekran görüntüsü 2025-02-16 135041](https://github.com/user-attachments/assets/7d4ae2f9-ba64-4fe6-b711-081fd5449777)
 
-![Uploading Ekran görüntüsü 2025-02-16 135120.png…]()
+![Ekran görüntüsü 2025-02-16 135120](https://github.com/user-attachments/assets/6c3f2efd-becf-488c-8941-2a13fbd1aacb)
 
-![Uploading Ekran görüntüsü 2025-02-16 135241.png…]()
-
+![Ekran görüntüsü 2025-02-16 135241](https://github.com/user-attachments/assets/c08e9901-6b29-4fb6-a514-a8aebf7bec74)
 
 
 
